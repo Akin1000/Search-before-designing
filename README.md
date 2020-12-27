@@ -1,2 +1,2 @@
 # Search-before-designing
-![](https://cloudinary.com/console/c-86c72dc3a43ec7318dd3a1cfc95ba2/media_library/folders/home)
+![](https://res.cloudinary.com/deb3vgvzz/image/upload/v1609068886/Design-Thinking-00-01-0998-min_uzqxm6.webp)
